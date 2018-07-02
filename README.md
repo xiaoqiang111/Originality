@@ -1,0 +1,2 @@
+# Originality
+  Private outsourcing project
